@@ -1,1 +1,0 @@
-# wermis.lol
